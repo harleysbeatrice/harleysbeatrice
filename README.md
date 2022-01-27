@@ -7,6 +7,7 @@ I am willing to colaborate on any project that can utilize my set of skills.
 You can reach me on Discord and LinkedIn:
 
 Discord: harleysbeatrice#9957
+
 linkedin.com/in/umut-deveci-78054211a
 
 I also respond to my mails regularly:
